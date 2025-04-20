@@ -1,3 +1,3 @@
 hesitation board
-vised the web = https://hesitation-board-oofnn.kinsta.page/
+visid the web = https://hesitation-board-oofnn.kinsta.page/
 
